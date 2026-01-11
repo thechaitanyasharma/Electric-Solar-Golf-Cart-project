@@ -111,7 +111,6 @@ I am actively seeking opportunities in **Additive Manufacturing**, **Robotics**,
 
 * **GitHub:** [@thechaitanyasharma](https://github.com/thechaitanyasharma)
 * **Email:** [chaitanyasharma700@gmail.com](mailto:chaitanyasharma700@gmail.com)
-* **YouTube:** [MovieZen](https://youtube.com/@themoviezen)
 
 ---
 <p align="center">
